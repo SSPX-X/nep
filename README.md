@@ -20,8 +20,8 @@
 <p>nep vose nao ten valor</p>
 <p>mas mezmu en augo inutil, eu conçigo ver augo importanti em vose</p>
 <h1>louzado é gay, baitola, homosexukal, gosta de rapazes</h1>
-<img src="./queijo.png" alt="poipole">
 
+<m1>literalmente eu↓</m1>
 <p><img src="./konata.gif" alt="konata"></p>
 
 <h1>nep abaixo ↓↓↓↓↓</h1>
